@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @Xpras-ID<br>👀 I’m interested in WEB3, Git, And Building<br>🌱 I’m currently learning Python, Javascript, C++<br>💞️ I’m looking to collaborate on Zenchain Community<br>📫 How to reach me: prasislami90@gmail.com (Mail) prasislami90 (discord)
+👋 Hi, I’m @Xpras-ID<br>👀 I’m interested in WEB3, Git, And Building<br>🌱 I’m currently learning Python, Javascript, C++<br>💞️ I’m looking to collaborate on Zenchain Community<br>📫 How to reach me: prasislami90@gmail.com (Mail) x_pras (discord)
 
 
 ## 🌐 Socials:
